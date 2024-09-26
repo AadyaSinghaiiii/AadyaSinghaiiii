@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... nothing
 - 💞️ I’m looking to collaborate on ... air 
 - 📫 How to reach me ... u dont 
-- 😄 Pronouns: ... sigma/alpha
+- 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... help me. zainab fell on me 
 
 <!---
