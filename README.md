@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... air 
 - 📫 How to reach me ... u dont 
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... help me. zainab fell on me 
+- ⚡ Fun fact: ... mahika aggrawal not very sigma
 
 <!---
 AadyaSinghaiiii/AadyaSinghaiiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
