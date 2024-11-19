@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @AadyaSinghaiiii
-- 👀 I’m interested in ... going on mahikas phone 
-- 🌱 I’m currently learning ... nothing
-- 💞️ I’m looking to collaborate on ... air 
+- 👀 I’m interested in ... art uwu 
+- 🌱 I’m currently learning ... parts of speech uwu
+- 💞️ I’m looking to collaborate on ... hehehe uwu
 - 📫 How to reach me ... u dont 
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... mahika aggrawal not very sigma
+- ⚡ Fun fact: ... mahikas not very sigma
 
 <!---
 AadyaSinghaiiii/AadyaSinghaiiii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
